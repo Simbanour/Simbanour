@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @Simbanour
+- 👀 I’m interested in design and art
+- 🌱 I’m currently learning python
+- 💞️ I’m looking to collaborate on anything
+- ⚡ Fun fact: I have two furry cats
